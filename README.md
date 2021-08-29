@@ -1,1 +1,3 @@
 # LucianoBarreto
+
+## Assimilando ideias...
